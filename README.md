@@ -5,8 +5,11 @@
 ## El Boxeo
 
 El boxeo es uno de los deportes de combate más antiguos del mundo, con raíces que se remontan a las civilizaciones antiguas. Se han encontrado evidencias de boxeo en Egipto alrededor del 3000 a.C., y en la antigua Grecia se incluyó como deporte olímpico en el 688 a.C.
+[![anfora-336-ac-boxeo-1.webp](https://i.postimg.cc/j5ChTnR2/anfora-336-ac-boxeo-1.webp)](https://postimg.cc/njbmYzjf)
 
 En el siglo XVIII, el boxeo moderno comenzó a tomar forma en Inglaterra, donde se popularizó como "boxeo a puño limpio". Jack Broughton, un pionero del deporte, estableció algunas de las primeras reglas en 1743 para regular los combates. En 1867, las reglas del Marqués de Queensberry introdujeron el uso de guantes y otras normas de seguridad, lo que ayudó a transformar el boxeo en el deporte reglamentado que conocemos hoy.
+
+[![John-Hamilton-Mortimer-Jack-Broughton-the-Boxer.jpg](https://i.postimg.cc/432zW4pg/John-Hamilton-Mortimer-Jack-Broughton-the-Boxer.jpg)](https://postimg.cc/LqfYXpyC)
 
 A continuación, encontrarás una lista de los cinco mejores boxeadores de todos los tiempos, con enlaces a archivos que detallan sus carreras y logros.
 
