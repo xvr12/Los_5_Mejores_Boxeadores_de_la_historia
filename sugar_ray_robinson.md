@@ -1,6 +1,6 @@
 # Sugar Ray Robinson
 
-## Introducción
+## Descripción
 [![sugar1.jpg](https://i.postimg.cc/D0JJm2X2/sugar1.jpg)](https://postimg.cc/hQnP5Rsw)
 
 Es considerado por muchos expertos como el mejor boxeador libra por libra de todos los tiempos. A lo largo de su carrera, Robinson fue seis veces campeón mundial en las divisiones de peso welter y medio. 
