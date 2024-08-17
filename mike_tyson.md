@@ -1,6 +1,6 @@
 # Mike Tyson
 
-## Introducción
+## Descripción
 [![mike1.jpg](https://i.postimg.cc/pLN8hnC3/mike1.jpg)](https://postimg.cc/rKJz7sv9)
 Conocido como "Iron Mike", se convirtió en el campeón mundial de peso pesado más joven de la historia al ganar el título a los 20 años. Tyson dominó la división a finales de los años 80 con su estilo agresivo, velocidad y una potencia de golpeo temida por todos. 
 
