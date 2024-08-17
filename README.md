@@ -1,6 +1,6 @@
 # Los 5 Mejores Boxeadores de la Historia
-*Autor: Xavier Villavicencio Ross
-*Fecha: 16/08/2024
+*Autor: Xavier Villavicencio Ross*
+*Fecha: 16/08/2024*
 
 ## El Boxeo
 
