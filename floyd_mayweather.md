@@ -1,6 +1,6 @@
 # Floyd Mayweather Jr.
 
-## Introducción
+## Descripción
 [![floyd.jpg](https://i.postimg.cc/VkcrLPL8/floyd.jpg)](https://postimg.cc/XpQ7QhCH)
 
 Floyd Mayweather Jr. es uno de los boxeadores más inteligentes y estratégicos de todos los tiempos, con un récord profesional invicto de 50-0. Conocido por su destreza defensiva y su habilidad para leer a sus oponentes, Mayweather ha sido campeón mundial en cinco divisiones de peso. 
